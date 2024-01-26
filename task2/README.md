@@ -1,0 +1,1 @@
+Moje odpoved je a';slda;sld;al
